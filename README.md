@@ -1,2 +1,1 @@
-jaldi jaldi
- upload kr de 
+wait one minute uploading 
