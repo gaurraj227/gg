@@ -1,1 +1,1 @@
-wait one minute uploading 
+uploaded make sure to remove comments
